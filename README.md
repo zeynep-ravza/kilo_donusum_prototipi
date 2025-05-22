@@ -1,1 +1,0 @@
-# kilo_donusum_prototipi
